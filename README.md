@@ -1,2 +1,2 @@
-Engineering Student | Certified Yapper \n
+Engineering Student | Certified Yapper
 ICE, ISE CU (🧊)
